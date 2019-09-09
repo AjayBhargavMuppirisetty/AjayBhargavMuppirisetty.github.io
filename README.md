@@ -1,2 +1,2 @@
-# AjayBhargavMuppirisetty.github.io
+# ajaybhargavmuppirisetty.github.io
 Portfolio Version1.0
